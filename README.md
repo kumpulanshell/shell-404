@@ -1,4 +1,3 @@
-![WhatsApp Image 2025-04-10 at 17 40 05_6928eda0](https://github.com/user-attachments/assets/7a2ea804-57e5-41a5-bce2-6a78e018782e)# shell-404
 
 HACKING WITHOUT PERMISSION IS  ILEGAL
 
